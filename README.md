@@ -1,5 +1,5 @@
 ## Hi, I’m Bugra
-Cybersecurity Enthusiast & Future Will-be Purple Team Specialist
+Cybersecurity Enthusiast & Future Future Purple Team Specialist
 
 Passionate about securing systems, analyzing threats, and building a safer digital world
 
